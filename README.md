@@ -1,1 +1,1 @@
-Full-time Student
+Full-time Student at Nanyang Polytechnic
